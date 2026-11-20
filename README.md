@@ -30,7 +30,7 @@ $\color{#aa5b51}{\text{+ vir . proxy}}$
 
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Luxurious+Script&size=35&duration=1&pause=1000&color=aa5b51&center=true&vCenter=true&width=435&lines=gurt%3A+yo)](https://git.io/typing-svg)
   
-$\color{#b48561}{\text{hi. im felix/jeremiah!! u may call me as those, wtv nickname u give, or the pony i'm being as.}}$
+$\color{#b48561}{\text{im felix/jeremiah!! u may call me as those, wtv nickname u give, or the pony i'm being as}}$
 
 $\color{#aa5b51}{\text{aaaaany pronouns, aaaanyything u refer 2 me, dooooon't care, bdays on september 10}}$
 
