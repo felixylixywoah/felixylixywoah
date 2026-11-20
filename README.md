@@ -25,6 +25,8 @@ $\color{#aa5b51}{\text{+ vir . proxy}}$
 
   <img align="right" width="300" src="https://github.com/felixylixywoah/felixylixywoah/blob/main/wawawaja.webp" style="margin-left: 160px;" />
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Caramel&size=50&duration=3000&pause=400&color=95435b&center=true&vCenter=true&width=435&lines=%E2%80%9C+we'll+take+care+of+him+%2C;it's+our+way+of+saying+thanks+.+%E2%80%9C;%E2%80%9C+willow+%2C+stop+!;they+saved+our+lives+!+%E2%80%9C;%E2%80%9C+today+you+showed+us+that+we+-;need+to+work+together+as+survivors+%2C+;otherwise+we+might+as+well+be+.+.;.+.+infected+.+%E2%80%9C)](https://git.io/typing-svg)
+
 <details closed>
    <summary>$\color{#b48561}{\text{ㅤ ㅤ⋆˚𖤓˖°ㅤ}}$ $\color{#ffffff}{\text{more about}}$</summary>
 
