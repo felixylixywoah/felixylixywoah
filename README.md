@@ -49,19 +49,6 @@ $\color{#aa5b51}{\text{i loav my bf}}$
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Luxurious+Script&size=35&letterSpacing=&duration=1&pause=400&color=ffffff&center=true&vCenter=true&width=450&lines=%E3%85%A4%EA%A8%84%EF%B8%8E)](https://git.io/typing-svg)
 
 <details closed>
-   <summary>$\color{#b48561}{\text{ㅤ ㅤ˖݁ ♬⋆.˚𝄞ㅤ}}$ $\color{#ffffff}{\text{links}}$</summary>
-
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Luxurious+Script&size=35&duration=1&pause=1000&color=aa5b51&center=true&vCenter=true&width=435&lines=roblox+joins+aren't+on%2C+lmk+if+u+friended+me)](https://git.io/typing-svg)
-  
-[guns.lol](https://guns.lol/felixylixywoah)
-
-[roblox](https://www.roblox.com/users/1625069975/profile)
-
-</details>
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Luxurious+Script&size=35&letterSpacing=&duration=1&pause=400&color=ffffff&center=true&vCenter=true&width=450&lines=%E3%85%A4%EA%A8%84%EF%B8%8E)](https://git.io/typing-svg)
-
-<details closed>
    <summary>$\color{#b48561}{\text{ㅤ ㅤ⋆✴︎˚｡⋆ㅤ}}$ $\color{#ffffff}{\text{ponytown stuff!!!}}$</summary>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Luxurious+Script&size=35&duration=1&pause=1000&color=aa5b51&center=true&vCenter=true&width=435&lines=horse)](https://git.io/typing-svg)
